@@ -7,7 +7,6 @@ This project for gaydar ,no run by it self.
 
 And I don't want like some one to sale is,Although it is MIT.
 Or no fork it and eidt it by themselves for make money.This kind of behavior is immoral. 
-like this fuck guys "q15690028/0429" fuck u.I hope the police will find you at an early date.
 
 #This project is free. all free!!! It's for technical study. Don't buy this project from other people.
 
